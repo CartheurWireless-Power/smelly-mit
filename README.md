@@ -1,4 +1,4 @@
-## smelly-mit
+## The inexhaustible stench of power
 
 The exhonerable stinkers that steal then pretend wireless-power tech in not that great.
 
